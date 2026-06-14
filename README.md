@@ -1,2 +1,2 @@
 # Mis_Proyectos
-proyectos creados por mario del rey
+proyectos creados por Mario del Rey Moreno
